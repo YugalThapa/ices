@@ -1,3 +1,4 @@
 # This is yugal readme
 
-ujjwal pate you fool boy, nigga!!
+Ujjawal Patel is collbaorator in this project.
+
